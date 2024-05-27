@@ -1,0 +1,1 @@
+Körkortsteori English doesn not collect any users data.
